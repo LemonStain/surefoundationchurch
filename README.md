@@ -1,1 +1,1 @@
-# surefoundationchurch
+# Sure Foundation Church
